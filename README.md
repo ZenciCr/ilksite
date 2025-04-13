@@ -1,0 +1,2 @@
+# ilksite
+ZENCİ CR YOUTUBE KANALI!
